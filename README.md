@@ -1,2 +1,4 @@
-# nostr_verification_mssg
-Setup Nostr Verification
+Welcome to MSServices.Global
+IT-Consultant - Business & Strategy
+Twitter: @MSServices_info
+https://www.msservices.global/
